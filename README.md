@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Iconiclol
+- 💞️ I’m looking to collaborate on RBX Scripts and such in that catagory
+- 📫 How to reach me Galaxylukeyking@gmail.com For (*inquiries ONLY*)
